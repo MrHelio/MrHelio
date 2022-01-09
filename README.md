@@ -1,1 +1,1 @@
-Olá meu nome é Hélio, tenho 17 anos, e quero aprender muitas coisas no ramo de tecnologia.
+Olá, meu nome é Hélio, tenho 17 anos, gosto de programar e aprender sobre novas tecnologias.
